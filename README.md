@@ -1,1 +1,0 @@
-# qualifing_exam_pre
